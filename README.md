@@ -1,1 +1,0 @@
-# tinkuverma_portfolio.com
